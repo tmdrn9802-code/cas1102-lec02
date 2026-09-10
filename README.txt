@@ -1,2 +1,4 @@
 SEUNG GU JI
 2026150084
+Seungwoo Kim
+
